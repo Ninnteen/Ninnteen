@@ -1,3 +1,0 @@
-## Bienvenue ;)
-
-	Le site est encore vide...
